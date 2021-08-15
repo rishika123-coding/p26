@@ -1,0 +1,1 @@
+Bake pizza in the 475°F oven, one at a time, until the crust is browned and the cheese is golden, about 10-15 minutes. If you want, toward the end of the cooking time you can sprinkle on a little more cheese.
